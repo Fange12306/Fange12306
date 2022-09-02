@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yufan Wang
+- 👋 Hi, I’m Yufan Wang，student of SUSTech
 
 
 
